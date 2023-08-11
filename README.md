@@ -1,7 +1,7 @@
 zxcsdzxczxczxczxcxcxv- 👋 Hi, I’m @kirilsev326
 - 👀 I’m interestedvcxsd in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...s8090u9
+- 🌱 I’m currently asdaclearning ...
+- 💞️ I’m loozxczxcking to collaborate on ...s8090u9
 - 📫 How to resdach me ...asfvx
 фів
 <!---cvxcv
