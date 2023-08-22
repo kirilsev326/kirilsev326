@@ -1,7 +1,7 @@
 zxcsdzxczxczxczxcxcxv- 👋 Hi, I’m @kirilsev326
 - 👀 I’m intezxcrestedvcxsd in ...
-- 🌱 I’m currently asdaclearning ...
-- 💞️ I’m loozxczxcking to collcaborczxcate on ...s8090u9
+- 🌱 I’m currently asdaclearcvbning ...
+- 💞️ I’m loozbvcbvxczxcking to collcaborczxcate on ...s8090u9
 - 📫 How to resdach me ...asfvxzxczxcz
 фівиаcvbzcx
 <!---cvxcvsdvsvscxv
