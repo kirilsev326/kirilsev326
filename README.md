@@ -1,6 +1,6 @@
-zxcsdzxczxczxczxcxcxv- 👋 Hi, Icxzczxczxівфіввфіczxc’m @kirilsevcvv3xzczxcxzc26
+asdzcxcxzzxczxcsdzxczxczxczxcxcxv- 👋 Hi, Icxzczxczxівфіввфіczxc’m @kirilsevcvv3xzczxcxzc26
 - 👀 I’m intezxcrestedvcxsd in ...
-- 🌱 I’m currently asdaclearcvbning ...sdfcvxz
+- 🌱 I’m currently asdaclearcvbning ...sdfcvxzzxczxczxc
 - 💞️ I’m loozbvcbvxczxcking to collcaborczxcate on ...s8090u9
 - 📫 How to cvresdмчсмчсмчсмach me sdasdваіваі...asfvxzxczdfsdfіваіваxcz
 фівиаcvbzcxasdfasdf
