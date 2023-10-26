@@ -1,5 +1,5 @@
 asdzcxcxzzxczxcsdzxczxczxczxcxcxv- 👋 Hi, Icxzczxczxівфіввфіczxc’m @kirilsevcvv3xzczxcxzc26
-- 👀 I’m intezxcrestedvcxsd in ...
+- 👀 I’m intezxcrestedvcxsd in gkhjjk
 - 🌱 I’m currently asdaclearcvbning ...sdfcvxzzxczxczxc
 - 💞️ I’m loozbvcbvxczxcking to collcaborczxcate on ...s8090u9lh
 - 📫 How to cvresdмчсмчсмчсмach me sdasdваіваі...asfvxzxczdfsdfіваіваxcz nmb
