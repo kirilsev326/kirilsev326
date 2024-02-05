@@ -1,6 +1,6 @@
 asdzcxcxzzxczxcsdzxczxczxczxcxcxvsadjjhvmn,vdsfdssasd- 👋 Hi, jfghgjghjjghfkkkIcxzczxczxhffjhgkhhkddasdsadhfіhgjkhjвфіввkfyфііфвckgfjjklіgfhfgaasdfajfgfhdfgfdfgsadsadfdsgfdвasdasdфasdsadasdівіфвzxkgfjhc’m dsfsrewrdfsdfasdzcxвіфвіфвфівфвфі@asdsasadasdafjggh,gsdfdsfdsfhjksddh,jsadasdasdasdshhbkjhgjhhkkhkghfaddascxjgjadkirilshgevcviikgv3asdsdasdsxcczcxxzczaSAgвавпвапмсчgfфівіфвdSc cxvxcxzc26asasfdsfdfsdfdsfsdfdsfdsfsdf
 - 👀 I’m intezxcrestedvcxsd in gkhjjk
-- 🌱 I’m currently asdaclearcvbningfsfsdfsdf FERWER...sdfadsfasdfcvxzzxczxczxcfdgdfgdfg
+- 🌱 I’m currently asdaclearcvbningfsfsasdasdasdasdfsdf FERWER...sdfadsfasdfcvxzzxczxczxcfdgdfgdfg
 - 💞️ I’m фівіфіфвфівloozbvcbvxczxasdasdasdasdsadasdsaasdsadasdsadasdasdasadasdsdcking asdsadsadtzxxczxzcxzczxczxczxczxcxzsdsdsdso asdsadsdssdasdasddsdcollcaborczxcate on ...s8090u9lhsadsa
 - 📫 How to cvresdмчсмчсмчсмach mesdfsdf sdasdваіваі...asfvxzxczdj,vhgfsdfлпоіваіваxфівіфвczasdxz nmbasdsad
 фівиаcvbzcxasdfasdfascxzcxzsadcx
